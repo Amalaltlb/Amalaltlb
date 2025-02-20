@@ -9,4 +9,4 @@ If you're looking for a motivated analyst ready to make an impact, let’s conne
 🚀 Open to opportunities in data analytics
 📍 Based in France
 
-📲 Let’s connect ➡︎ @amal-mohamed-041a44122
+📲 Let’s connect ➡︎ @[amal-mohamed-041a44122]
